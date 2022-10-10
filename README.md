@@ -1,1 +1,1 @@
-source for [2λ.com](https://2λ.com)
+source for [6σ.net/](https://xn--6-0mb.net/)
